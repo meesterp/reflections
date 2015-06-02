@@ -1,1 +1,1 @@
-These reflections are 'borrowed' from Caroline :)
+These reflections are 'borrowed' from Caroline from Udacity :)
